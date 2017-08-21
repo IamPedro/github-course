@@ -8,3 +8,5 @@ Saiba mais no link [willianjusten.com.br]
 
 Estou gostando do curso.
 
+Muito ainda a aprender, não é mesmo!?
+
